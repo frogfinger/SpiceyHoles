@@ -1,1 +1,1 @@
-# SpiceyHoles
+# SpicyHoles
